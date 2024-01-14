@@ -34,6 +34,6 @@ ___
 
 <div align="center">
   
-  ![](https://count.getloli.com/get/@xyvrzaa?theme=rule34)
+  ![](https://count.getloli.com/get/@adiwajshing?theme=rule34)
   
 </div>
